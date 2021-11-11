@@ -1,4 +1,4 @@
-- 👋 Hi, I’m tqv
+- 👋 Hi, I’m Vinh
 - 👀 I’m interested in www
 - 🌱 I’m currently learning how to tech children
 - 💞️ I’m looking to collaborate on 
